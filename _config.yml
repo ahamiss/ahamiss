@@ -1,1 +1,8 @@
 theme: jekyll-theme-minimal
+
+# jekyll主题
+title: Aha
+description: "真、善、美"
+logo: https://user-images.githubusercontent.com/98723675/151733107-162b0165-e1e6-41f0-af23-be649e6e3537.png
+author: 
+  name: "AhaMiss"
