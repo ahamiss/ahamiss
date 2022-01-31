@@ -732,8 +732,70 @@ Trust me！
 ![image](https://user-images.githubusercontent.com/98723675/151739847-6425f097-9d6e-4f28-a1e0-befaa2bdce98.png)
 ![image](https://user-images.githubusercontent.com/98723675/151739852-e8c26cc5-6ff9-44e7-b064-23664faf08e0.png)
 
+### [女大法官金斯伯格 RBG](https://movie.douban.com/subject/27615467/)
 
+Ruth Bader Ginsburg
+
+简要介绍梳理了RBG的人生，爸爸是第一代移民，妈妈是第二代移民，妈妈从小就告诉她be a lady and be independent，让她受益终生啊！父母对她的呵护与培养。她与老公的琴瑟和鸣，老公对她事业的支持，对她才华的由衷赞美，为她游说，病重前给她写信让她原谅她不得不离开了（令人潸然泪下），这是最美好的婚姻啊，俩个人都成长为最好的自己，老公会拉着她早点下班，好好休息，做好饭。RBG能成为大法官，是她和她老公还有女儿儿子共同的努力。介绍了几个由RBG参与的美国男女平权重要案件，同薪同酬、男女平权、住房补助。就像RBG最常引用的那句话，我不是想女人权利高于男人，我只想让男人把放在女人脖子上的脚拿开。每天坚持运动，衣服领子好漂亮啊！她是美国自由派的保护人，美国宪法的捍卫者！不是她不退休，她是为了美国保守派自由派实力均衡，她才坚持...
+
+![image](https://user-images.githubusercontent.com/98723675/151741996-d6e81785-d49b-4375-80d4-9de1a421ce24.png)
+![image](https://user-images.githubusercontent.com/98723675/151742153-90971ff1-a6bb-42ab-853f-2d986f2a303e.png)
+![image](https://user-images.githubusercontent.com/98723675/151742223-e1d58564-bf5a-4555-8f4b-ce9e83edcdf4.png)
+![image](https://user-images.githubusercontent.com/98723675/151742275-01f26abf-d83a-4cad-891f-60c595cd8725.png)
+![image](https://user-images.githubusercontent.com/98723675/151742289-dbe44489-dfc2-4376-a5ca-6808518c43c7.png)
+![image](https://user-images.githubusercontent.com/98723675/151742326-7033fe53-efb1-49bf-a341-af9ab86f5663.png)
+![image](https://user-images.githubusercontent.com/98723675/151742365-f0760279-d075-42fc-82f5-4f87abebd180.png)
+![image](https://user-images.githubusercontent.com/98723675/151742390-19064dfb-c0be-471a-963b-1f8a14b455c6.png)
+![image](https://user-images.githubusercontent.com/98723675/151742424-2f0dd6af-ed77-4e93-9e7a-c8dc7696c406.png)
+![image](https://user-images.githubusercontent.com/98723675/151742518-f2d00b5c-4ed8-445f-a360-6588a88fa89d.png)
+
+![image](https://user-images.githubusercontent.com/98723675/151742491-8f38f56b-0d1b-4982-ad9d-7e98d650ad06.png)
+![image](https://user-images.githubusercontent.com/98723675/151742646-68d00c9f-6c8f-4011-8e41-1275edefd1ba.png)
+![image](https://user-images.githubusercontent.com/98723675/151742612-da90f30b-1f0c-49fc-aa93-2e004dd246a8.png)
+![image](https://user-images.githubusercontent.com/98723675/151742788-e849456d-1f27-4811-a108-569a43b499d2.png)
+![image](https://user-images.githubusercontent.com/98723675/151742836-85b2281e-4eec-4964-b892-277e38090281.png)
+![image](https://user-images.githubusercontent.com/98723675/151742929-982680b9-c56d-4971-bdbe-a639d54051f2.png)
+![image](https://user-images.githubusercontent.com/98723675/151742952-e3f6bd82-a50d-4ca0-aeb4-882d007d7d8d.png)
+![image](https://user-images.githubusercontent.com/98723675/151743037-cbfc0439-5b60-456b-8f33-40ccaa4fdc15.png)
+![image](https://user-images.githubusercontent.com/98723675/151743100-6e1e4495-1e57-417d-8e76-980b63e09d39.png)
+![image](https://user-images.githubusercontent.com/98723675/151743122-1ac277bc-00c9-4e65-9402-e8409392937f.png)
+![image](https://user-images.githubusercontent.com/98723675/151743164-3a77d23c-30d4-42a4-b1c0-6ef87b6a039b.png)
+![image](https://user-images.githubusercontent.com/98723675/151743244-bcc44fd7-fbf2-488a-8a2c-5622d9b26c12.png)
+![image](https://user-images.githubusercontent.com/98723675/151743280-b38831ce-17f2-4930-b694-10faa8f19af5.png)
+
+![image](https://user-images.githubusercontent.com/98723675/151743959-01677c86-839c-4364-bebe-86ca8a976d92.png)
+![image](https://user-images.githubusercontent.com/98723675/151744061-ee4fe603-d89a-4e47-be07-e1c74b818822.png)
+
+金斯伯格又向社会传达出这样一个观念：不该先入为主地认为女性不能做什么。
+1993年6月14日，时任总统比尔·克林顿提名她为最高法院大法官。
+这个职务属于终身任职，是任职总统为整个国家留下的政治遗产。
+
+![image](https://user-images.githubusercontent.com/98723675/151744338-f7607313-48cd-4929-b470-9c8c7ef41f89.png)
+![image](https://user-images.githubusercontent.com/98723675/151744516-2e945b1a-a412-46f2-bd43-705b81cc1678.png)
+![image](https://user-images.githubusercontent.com/98723675/151744571-3756d953-5f5f-44e7-8b8d-f702b92a6713.png)
+![image](https://user-images.githubusercontent.com/98723675/151744604-b29fec8f-f1e1-4244-bf5b-df8ce4c4089f.png)
+![image](https://user-images.githubusercontent.com/98723675/151744585-2a07e227-7e58-49db-9626-8663a7cf8909.png)
+
+八旬高龄的她，其实只有1.5米，45公斤。
+但这一声女神，她绝对担得起。
+
+```
+My dearest Ruth, 
+You are the only person i have loved in my life, setting aside a bit parents and kids and their kids. 
+What a treat it has been to watch you progress to the very top of the legal world.
+I have admired and loved you almost since the day we first met at Cornell, some 56 years ago. 
+The time has come for me to take leave of life because the loss of quality now simply overwhelms. 
+I hope you will support where i come out, and i understand you may not. 
+I will not love you a jot less.
+
+我最亲爱的鲁斯，
+你是我一生中爱的惟一的人。除了（也许吧）父母，孩子，孩子的孩子以外。几乎自从五十六年前我们在康奈尔第一次相遇的那天起，我就一直佩服你，爱你。
+能够看着你一路在法律世界中走到最高峰，这是我怎样的幸运！
+从现在开始到六月二十五日，我都会在约翰·霍普金斯医疗中心。我想，从现在到那时之间，我将很努力地思考我剩余的健康和人生，去想一想，是否总地来说，现在已经到了我应该作出决定的时候：是继续坚持，还是承认在生命质量的损失下，我不如从生命中告退。我希望假如我消极怠工，你仍能支持我，但我也懂得你可能不会支持我的决定。我对你的爱不会有一丝一毫的减少。
+```
 
 ## 参考
+
+1. [纽约客：鲁斯·巴德·金斯伯格如何改变了最高法院](https://movie.douban.com/review/12908574/)
 
 ![Alt](https://repobeats.axiom.co/api/embed/0441cb4d54b9a28d39c7a2d944698c14fbf7fa34.svg "Repobeats analytics image")
