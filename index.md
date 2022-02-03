@@ -5855,6 +5855,51 @@ I will not love you a jot less.
 
 王志文饰演丁元英确是导演独具慧眼。丁“他和正常人的思维颠倒了，说鬼话，办鬼事，倒行逆施，但还有道理，像魔，柏林有个居士说他是个极品混混”，丁集智慧、特立、孤独、怪癖与一身，其言语举止跟常人差异很大，塑造这样的人物形象，不仅需要高超的演技更要有宗教、哲学、政治、经济、文化等方面的学识，这不是一般水平能做到的，王志文老师做到了。丁元英接听小丹最后的电话时，王老师放电话的手掌、手指细緻入微的变化，非常形象的表现出丁对小丹不详的预感、内心的焦灼和无奈；丁看到小丹以其心灵和肉体表示“履行程序”时，在突如其来的爱情风暴面前，王老师的眼神惊异又镇定、面部表情严肃又亲切，不失男人对一个真切女人的感激和尊重；丁听到小丹死讯时，没有言语没有哭泣，王老师面部表情丰富而细腻的变化，活脱脱的刻画出丁的大悲、大爱。
 
+
+## “女神”
+
+![image](https://user-images.githubusercontent.com/98196188/152292810-890c5150-1a25-42ed-9c81-9823ce52ca88.png)
+![image](https://user-images.githubusercontent.com/98196188/152292843-9d78b65d-bcca-4995-a9d3-854e97e0f647.png)
+> 赵雅芝
+
+![image](https://user-images.githubusercontent.com/98196188/152293021-3586ba5c-a3d0-4f97-8016-bc8611d093b0.png)
+![image](https://user-images.githubusercontent.com/98196188/152293075-f196d21b-6ee1-4515-a0d6-160c751ef326.png)
+> 周慧敏
+
+![image](https://user-images.githubusercontent.com/98196188/152293440-44c1cbaa-4075-4556-9ef3-5e4b43ab1430.png)
+![image](https://user-images.githubusercontent.com/98196188/152293510-b81b88e2-2aad-4afe-891c-0db7b0e6a3dc.png)
+> 林青霞
+
+![image](https://user-images.githubusercontent.com/98196188/152293649-b33cf4e7-65df-4f6a-aedd-8d30d3f83fea.png)
+![image](https://user-images.githubusercontent.com/98196188/152293688-bd6f643e-d3c4-4e69-812d-01bd0ec42552.png)
+![image](https://user-images.githubusercontent.com/98196188/152293748-17100e6d-2b94-46b8-9ef0-04c96020447a.png)
+> 关之琳
+
+![image](https://user-images.githubusercontent.com/98196188/152293939-bbaf8459-e93e-49b4-9425-5cc1ef5fbf96.png)
+![image](https://user-images.githubusercontent.com/98196188/152293961-37155e74-d0e6-45af-9532-0438fee624c2.png)
+![image](https://user-images.githubusercontent.com/98196188/152294079-fa09c211-c5c7-441c-9cdf-7c3fa3ac58b3.png)
+> 李嘉欣
+
+![image](https://user-images.githubusercontent.com/98196188/152294296-cb04c98b-ee28-46b7-9411-dd66f0cf1602.png)
+![image](https://user-images.githubusercontent.com/98196188/152294317-f2def9c2-9785-400f-967f-3acae5518bac.png)
+![image](https://user-images.githubusercontent.com/98196188/152294408-e0a547e4-7144-4493-b768-81abcf0a794d.png)
+![image](https://user-images.githubusercontent.com/98196188/152294439-10cf3ffd-9cce-4ee8-930c-31bfbe2d9602.png)
+> 王祖贤
+
+![image](https://user-images.githubusercontent.com/98196188/152292392-0bddfe3d-3ae4-41bb-b7ae-1e620c904653.png)
+![image](https://user-images.githubusercontent.com/98196188/152292575-9811784f-3496-4095-a412-f97795ac76f5.png)
+> 周涛
+
+![image](https://user-images.githubusercontent.com/98196188/152291707-09674910-aaf6-4048-bf0c-6f061fdeeba9.png)
+![image](https://user-images.githubusercontent.com/98196188/152291872-29edbe64-e4ca-4516-a179-4eab7e4f5f8d.png)
+> Alexandra Daddario
+
+![image](https://user-images.githubusercontent.com/98196188/152294883-92e8219d-556f-487e-a9da-0f3b1779e6b1.png)
+![image](https://user-images.githubusercontent.com/98196188/152295013-1be90d6c-3442-4555-bb52-1cbedc707b07.png)
+![image](https://user-images.githubusercontent.com/98196188/152295058-dd10854f-40b4-464f-b7e3-35ac7de672cd.png)
+![image](https://user-images.githubusercontent.com/98196188/152294729-0d98389d-f656-41f0-9248-4e9fee995d61.png)
+> Kate Upton
+
 ## 参考
 
 1. [纽约客：鲁斯·巴德·金斯伯格如何改变了最高法院](https://movie.douban.com/review/12908574/)
