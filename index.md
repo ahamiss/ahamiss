@@ -5900,6 +5900,11 @@ I will not love you a jot less.
 ![image](https://user-images.githubusercontent.com/98196188/152294729-0d98389d-f656-41f0-9248-4e9fee995d61.png)
 > Kate Upton
 
+![image](https://user-images.githubusercontent.com/98723675/152296832-66528870-7477-4473-a33e-eb217eb9a219.png)
+![image](https://user-images.githubusercontent.com/98723675/152296979-b840fab2-dc1f-476f-8cdd-a101436bea17.png)
+![image](https://user-images.githubusercontent.com/98723675/152296620-fa09ec0a-b00a-4ee8-81eb-29f559e3b00c.png)
+> Sasha Luss
+
 ## 参考
 
 1. [纽约客：鲁斯·巴德·金斯伯格如何改变了最高法院](https://movie.douban.com/review/12908574/)
